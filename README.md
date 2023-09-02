@@ -1,4 +1,4 @@
-### Hi there, I'm Vinod - aka [dasmodeler][website] 👋 
+### Hi there, I'm [dasmodeler][website] 👋 
 
 <br />
 
